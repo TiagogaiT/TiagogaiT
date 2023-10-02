@@ -1,4 +1,4 @@
-### Bem vindo ao meu perfil! 👍
+### Bem vindo ao meu perfil 👍
 
 - to sem ideia de colocar na descrição
 - joinha
