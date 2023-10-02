@@ -1,6 +1,6 @@
 ### Bem vindo ao meu perfil 👍
 
-- to sem ideia de colocar na descrição
+- eu gosto de carros esportivos
 - joinha
 - 👍
 
